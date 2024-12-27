@@ -7,7 +7,7 @@
 >💞️ I’m looking to collaborate on ...Any idea 💡 / Project
 
 >[!IMPORTANT] 
->📫 How to reach me ...
+>📫 How to reach me ... By mail ✉️ 📨 github.reheat003@passinbox.com 
 >😄 Pronouns: ...He / Him
 >⚡ Fun fact: ...Self taught Dev
 <!---
